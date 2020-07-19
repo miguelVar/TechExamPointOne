@@ -1,1 +1,1 @@
-Soy Miguel Angel Vargas 
+Soy Miguel Angel Vargas Ingeniero de sistemas y computacion
